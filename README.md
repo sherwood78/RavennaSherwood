@@ -1,2 +1,9 @@
 # RavennaSherwood
 HOW CYBERPUNK PROGRAMMERS HELPED US RECOVER FUNDS FROM A CRYPTO SCAM
+Honestly, I thought it was all gone.
+My dad got approached online by someone claiming to be a senior financial advisor. The guy seemed super professional and convinced my dad to start trading crypto on this platform he claimed was secure and high-yield. At first, it looked like everything was working—my dad was seeing profits, getting updates, even getting reassured that his money was growing.
+But the moment he tried to withdraw his funds, the nightmare started. They told him he had to pay a “commission fee” to access the money. Then, after he paid it, they hit him with a “card activation” fee. That’s when he finally reached out to me, confused and a bit embarrassed. I looked into it and instantly knew it was a scam. 
+I didn’t want to panic, so I reached out to a friend of mine who’s way more tech-savvy than I am. After explaining the situation, he said, “You need to talk to Cyberpunk Programmers. They help people recover funds from this kind of stuff.”
+I got in touch with the team at Cyberpunk Programmers, and they immediately took action. They told us to keep up communication with the scammers while they traced everything on their end. What blew me away was how fast they worked. In less than 8 hours, they had tracked the scam, infiltrated their system, and recovered the entire amount.
+My dad had sent them a total of $437,000. Every single dollar was recovered.
+I can't thank Cyberpunk Programmers enough. If someone you love falls into a similar trap, don’t wait, don’t stay quiet, and definitely don’t feel ashamed. This stuff is designed to fool even the most careful people. Just know—there are people out there who can actually help. Cyberpunk Programmers is one of them. Reach out to them at cyberpunkprogrammers.com 
